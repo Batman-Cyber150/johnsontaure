@@ -1,26 +1,22 @@
-
-
-# MY PROFILE 🤵
+# MY PROFILE🦇
 
  :wave: hey! I'm **johnson thaure**.
  <br/>
  <br />
- <a href="https://web.facebook.com/profile.php?id=100080111871939&sk=reels_tab">
-  <img align="left" alt="tamara's LinkdeIn" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />
+
+<a href="[ https://www.instagram.com/invites/contact/?igsh=195ccqilzf729&utm_content=o6snfgy](https://x.com/JohnsonTahure?t=QCWV_xp2xG6Zq-86gQU4jQ&s=09)">
+  <img align="left" alt="johnson's Instagram" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />
 </a>
-<a href="">
-  <img align="left" alt="tamara's Instagram" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />
-</a>
-<a href="">
-  <img align="left" alt="tamara's Instagram" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/facebook.svg" />
+<a href="https://web.facebook.com/profile.php?id=100080111871939&sk=reels_tab">
+  <img align="left" alt="johnson's facebook" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/facebook.svg" />
 </a>
 <br />
 <br />
 
  **Thank you for checking up on me** :relaxed:
 
- ## Whos is  thaure the **batman**🦇? :thinking:
- - well, I'm that boy who grow up thinking he could go to the moon and come back😆, otherwise i'm an electrical engineer🧰:laughing:.
+ ## Who's is  thaure the **batman**🦇? :thinking:
+ - well, I'm that boy who grow up thinking he could go to the moon and come back😆, otherwise i'm an electrical engineer🧰
  - Based in **lusaka**,**Zambia**🇿🇲
 
 - I'm an **electrical engineer**🧰 *student at Gideon Robert University zambia*. **GRU**🏫 
@@ -34,8 +30,6 @@
 
 ### What do I Know :question:
 
-
-     
 ### MY Interest. 📚
 - **I'm interested in learning the **FULL STACK**, thats my aim** 
 - **Exlore the AI study and robotics🤖,may be creat one some day** 
@@ -59,6 +53,16 @@ I am a Hardworking person, but saying wont prove anything my environment and res
   **knowledge is**:infinity: 
 
   
+
+
+
+
+
+
+
+
+
+
 
 
 
