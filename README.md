@@ -4,7 +4,7 @@
  <br/>
  <br />
 
-<a href="[ https://www.instagram.com/invites/contact/?igsh=195ccqilzf729&utm_content=o6snfgy](https://x.com/JohnsonTahure?t=QCWV_xp2xG6Zq-86gQU4jQ&s=09)">
+<a href="https://x.com/JohnsonTahure?t=QCWV_xp2xG6Zq-86gQU4jQ&s=09">
   <img align="left" alt="johnson's Instagram" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />
 </a>
 <a href="https://web.facebook.com/profile.php?id=100080111871939&sk=reels_tab">
